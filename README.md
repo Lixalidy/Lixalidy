@@ -1,1 +1,1 @@
-# I like do make stuff yea..
+# I like to make stuff yea..
