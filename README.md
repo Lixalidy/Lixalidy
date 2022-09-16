@@ -7,7 +7,7 @@ I mostly like to make scripts for lego game! (Roblox)
 - Tech nerd :p
 - I have too much free time..
 
-**za#2389** is my discord if you feel like talking.
+**jajaa#2389** is my discord if you feel like talking.
 
 On a serious note though I have worked on various projects.
 
